@@ -1,0 +1,1 @@
+Tim Child finished his undergraduate degree in Physics at Imperial College London in 2014, and became a qualified teacher from University College London in 2017. He joined the Quantum Devices Group in January 2018, where he is focusing on direct entropy measurements in mesoscopic devices built on GaAs heterostructures.
